@@ -1,1 +1,1 @@
-central michigan university
+CMU
